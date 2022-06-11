@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @witchpaula
+- 👀 I’m interested in travel, makeup, english..
+- 🌱 I’m currently learning nutricion.
+- 💞️ I’m looking to collaborate on the good of the world.
